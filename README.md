@@ -1,6 +1,15 @@
-# John Mhico Tutor
+# **John Mhico Tutor**
+
+=============================
+
 ## The Way To Live is to Die
-### -Jm Tutor
+
+=============================
+
+### *-Jm Tutor*
+
+=============================
+
 ###### Ron Albert Sarigumba
 ###### Jeza Mae R. Salazar
 ###### John Mhico Tutor
